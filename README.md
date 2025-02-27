@@ -8,4 +8,3 @@ How-to-Plan-for-Studying-Abraod?
 
 
 ![image](https://github.com/SohelRana-aiub-Pro/Study-Abroad-Preps-Related-Tasks/assets/133596903/acfc761b-e240-419c-8d94-56879a6cadce)
------------------------------------------------------------------------
